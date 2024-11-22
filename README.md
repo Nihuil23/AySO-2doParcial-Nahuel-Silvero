@@ -1,1 +1,0 @@
-# AySO-2doParcial-Nahuel-Silvero
